@@ -18,7 +18,7 @@
 | [🔗 stake.ac](https://stake.ac/?c=ghvbzuiT) | ✅ Активно |
 | [🔗 stake.games](https://stake.games/?c=ghvbzuiT) | ✅ Активно |
 | [🔗 stake.pet](https://stake.pet/?c=ghvbzuiT) | ✅ Активно |
-| [🔗 stake1037.com](https://stake1037.com/?c=ghvbzuiT) | ✅ Активно В РФ |
+| [🔗 stake1038.com](https://stake1038.com/?c=ghvbzuiT) | ✅ Активно В РФ |
 | [🔗 stake1018.com](https://stake1018.com/?c=ghvbzuiT) | ✅ Активно |
 | [🔗 stake1019.com](https://stake1019.com/?c=ghvbzuiT) | ✅ Активно |
 | [🔗 stake1020.com](https://stake1020.com/?c=ghvbzuiT) | ✅ Активно |
